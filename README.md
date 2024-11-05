@@ -20,14 +20,63 @@ Have any Questions or Concerns? Message me or Talk in the Forum/Discussions Tab.
 Thank you for Helping, and For your support. Project Starts November 5th, 2024.
 
 
+CREDITS/THANKS/SOURCES
+WYATT V.
+KNOX H.
+JOHN M.
+----------
+DELL
+ALIENWARE
+MSI
+MICROSOFT
+APPLE
+SPOTIFY
+ASUS
+ACER
+INTEL
+SEAGATE
+WD
+NVIDIA
+IFIXIT
+MICROCENTER
+NEWEGG
+BEST BUY
+UGREEN
+INTEL
+AMD
+ARM
+RAZER
+HP
+NINTENDO
+GSKILL
+OLLAMA
+META
+NETFLIX
+STEAM
+SONY
+AMAZON
+GOOGLE
+IBM
+CISCO
+EBAY
+OPERA
+ADOBE
+SLACK
+FOXCONN
+ORACLE
+LENOVO
+PYTHON
+CANONICAL
+MOZILLA
+OPENAI
+----------
+FORBES
+BRITANNICA
+WIKIPEDIA
+FANDOM
+REDDIT
+X
+FACEBOOK
+GOOGLE.COM
 
-Please Enjoy this AI generated ASCII Cat while you wait...
-
-   ./\_/\. 
-  .( o.o ).           
-    > ^ <  
-  /        \     
- /          \
-|            |      
- \  ||  ||  /
-  \_oo__oo_/#######o
+THANK YOU EVERYONE FOR THEIR SUPPORT AND TO THE COUNTLESS CONTRIBUTORS THAT WE COULDN'T HAVE DONE THIS WITHOUT.
