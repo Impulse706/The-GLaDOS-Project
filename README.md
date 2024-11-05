@@ -20,7 +20,7 @@ Have any Questions or Concerns? Message me or Talk in the Forum/Discussions Tab.
 Thank you for Helping, and For your support. Project Starts November 5th, 2024.
 
 
-CREDITS/THANKS/SOURCES
+CREDITS/THANKS/SOURCES:
 WYATT V.
 KNOX H.
 JOHN M.
